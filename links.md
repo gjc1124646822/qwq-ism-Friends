@@ -25,6 +25,7 @@
 - lw uc震惊部部长 | [那一抹落日的橙 - 博客园](https://www.cnblogs.com/Loi-dfkdsmbd/)
 - Youngsc | [Youngsc](http://youngsc.ml/)
 - 阿尔扎诺帝国魔术学院 | [lonlyn - 博客园](http://www.cnblogs.com/gjc1124646822/)
+- beautyyu | [银河美术馆](https://beautyyu.one)
 
 **友谊是魔法！** 
 
